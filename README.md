@@ -1,1 +1,0 @@
-# mvp-hand-me-up
